@@ -1,4 +1,4 @@
-#How Pgramming Chose Stan
+How Pgramming Chose Stan
 I had been very actively involved in multiple investments of time but with money as the main focus. 
 Soon I realized that life was not all about money and that the world needed change.
 Networking with individuals increased and hence challenged to do something unique.
